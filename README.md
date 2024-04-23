@@ -10,7 +10,7 @@
 
 🎓 I hold a **Bachelor's degree in Computer Science**, which laid the foundation for my career.
 
-👨‍👩‍👧‍👦 I'm a husband and dad of two little angels 👼, and I adore spending time with my family.
+👨‍👩‍👧‍👦 I'm a husband and dad of two little angels 👼, and I adore spending time with my family. We also have a furry companion, a bichon maltese dog! 🐕
 
 🎣 My hobbies include football, movies, predator fishing, traveling, and spending time in nature. And of course, coding is one of my favorite activities.
 
